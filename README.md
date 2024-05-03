@@ -5,6 +5,7 @@
 - 📫 How to reach me: email vmcdaniel459@gmail.com, portfolio website coming soon
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: I am a professional pianist with 14 years of experience.
+  
 
 
 
